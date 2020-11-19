@@ -1,0 +1,1 @@
+The ingredients are water, ginger, cardomen, tea leves, cinnamon, fennel seeds,suger, and milk. 
